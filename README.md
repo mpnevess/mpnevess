@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mpnevess
+- 👀 Technology, Digital Transformation and Systems Architect
+- 🌱 I’m currently learning ETH domains/Blockchain/Web 3.0
+- 💞️ I’m looking to collaborate/help businesses with Digital Transformation
+- 📫 marcelo@kazap.co.uk
